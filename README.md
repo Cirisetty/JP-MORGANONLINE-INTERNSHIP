@@ -11,3 +11,13 @@ Task 2:
 Task 3:
 - Display data visually for traders
   (Use Perspective to create the chart for the trader’s dashboard)
+
+  ## My Certificate of Completion 
+
+
+![R5iK7HMxJGBgaSbvk_J P  Morgan_9ZTQtyBvgoFktqsfQ_1711550013599_completion_certificate_page-0001](https://github.com/user-attachments/assets/e28730cf-fa20-48c6-8d01-e42bdc443b49)
+
+
+## For any queries/doubts:
+
+:envelope: vijaykumarcirisetty@gmail.com :thumbsup:
